@@ -1,2 +1,2 @@
 # inspicrete.Github.io
-独立才是灵感的内涵！
+用不断的灵感改变世界！
